@@ -1,6 +1,6 @@
 oi meu nome é kauan carvalho.
 
-estou estudando no alura.
+estou fazendo o alura.
 
 não sou tao bom de bola mas tento fazer meu melhor.
 
